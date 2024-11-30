@@ -1,2 +1,2 @@
 Fajlovi za informatiku i računarstvo
-Andrea Vvuletić
+Andrea Vuletić
